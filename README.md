@@ -12,3 +12,5 @@ Chapter 1: The story of Billy Bob and his epic tale that won the nobel prize in 
 Chapter 2: Guss and the Time machine
 
 Chapter 3: Bubba Jay Junior is farming ”crops” but need a new blue bucket.
+
+Chapter 4: He sticks his head in the bucket which doesn't make sence.
